@@ -1,5 +1,5 @@
 
-![cartoon-of-happy-boys-in-the-gym-vector-39035624](https://github.com/user-attachments/assets/04124775-c2e5-4814-be57-8f93de3d6314)
+![cartoon-of-happy-boys-in-the-gym-vector-39035624](https://github.com/user-attachments/assets/50f4e6b3-5bfe-4d89-bb66-1b485835b099)
 
 # ExcelCoffeeOrder
 
