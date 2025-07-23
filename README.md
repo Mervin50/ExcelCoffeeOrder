@@ -64,9 +64,9 @@ Shows your biggest individual buyers:
 
 # Key Takeaways
 
-✅ Arabica is your star product with strong, consistent demand.
+✅ Arabica is our star product with strong, consistent demand.
 
-✅ United States is your biggest market by far.
+✅ United States is our biggest market by far.
 
 ✅ Sales have clear seasonal peaks — marketing campaigns can be timed to these.
 
