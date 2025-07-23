@@ -1,3 +1,6 @@
+
+![cartoon-of-happy-boys-in-the-gym-vector-39035624](https://github.com/user-attachments/assets/9c224f1f-29c8-48de-9c0b-625085f6d392)
+
 # ExcelCoffeeOrder
 
 <img width="1573" height="772" alt="White Minimalist Corporate Personal Profile LinkedIn Banner" src="https://github.com/user-attachments/assets/28b8ffc9-bb08-491f-91ae-460198a76267" />
