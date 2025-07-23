@@ -1,4 +1,4 @@
-<img width="371" height="382" alt="White Minimalist Corporate Personal Profile LinkedIn Banner" src="https://github.com/user-attachments/assets/f149edf5-5f81-4298-83b8-e231552897d2" />
+<img width="1200" height="1200" alt="White Minimalist Corporate Personal Profile LinkedIn Banner" src="https://github.com/user-attachments/assets/608e31df-ae29-4591-a872-da3de2d385f9" />
 
 # ExcelCoffeeOrder
 
